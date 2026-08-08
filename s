@@ -1,4 +1,4 @@
-MocwpEPgSh+4LNtY //MizzMaster
+odPGB8FzbqcRk7bP //MizzMaster
 iq/9k/ZvCHaYq4Ah //Krunal
 FQYjYBECr2ydjqvo //Mk
 FnxRnz0frpAeZFmF //Neozixxs
@@ -28,7 +28,7 @@ IDBGtpQkCnq46N4u //XMIGUEHHH
 
 jJqq843ULewE0mJ+ //young.drift VM.Roham @lil.pickyy
 
-8NjI8ursipKyvLSm //Negrito
+MocwpEPgSh+4LNtY //Negrito
 n8rYuYVgU60Cav0i //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
 5My/cSHlrg7Ju0vX //Arce
