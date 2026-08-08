@@ -31,7 +31,6 @@ jJqq843ULewE0mJ+ //young.drift VM.Roham @lil.pickyy
 MocwpEPgSh+4LNtY //Negrito
 n8rYuYVgU60Cav0i //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
-MocwpEPgSh+4LNtY //Test
 5My/cSHlrg7Ju0vX //Arce
 Qtlti9t7itJkuMAV //Lion
 o6yDvZyDkvPhxvff //brandaogamer dan.gs

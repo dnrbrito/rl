@@ -21,7 +21,6 @@ VRFlqyWuk59jkWN0 //balintka1234 GumifüstRacing @.hungi
 MocwpEPgSh+4LNtY //Negrito
 n8rYuYVgU60Cav0i //Gbzz
 +GjAx6CIaGfI2LC0 //Nyrak
-MocwpEPgSh+4LNtY //Test
 5My/cSHlrg7Ju0vX //Arce
 Qtlti9t7itJkuMAV //Lion
 o6yDvZyDkvPhxvff //brandaogamer dan.gs
